@@ -1,5 +1,8 @@
-## Hi there 👋
+## 1号站平台注册 👋
 
+博客：<https://yihaozhan.github.io>
+
+[1号站平台最新网址](https://yihaozhan.github.io)
 <!--
 **yihaozhan/yihaozhan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
